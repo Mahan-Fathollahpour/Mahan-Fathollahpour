@@ -1,2 +1,2 @@
 
-![Biograpy](https://user-images.githubusercontent.com/111521577/205142074-c36f6960-4e54-44ea-905e-46a464cd0a17.jpg)
+![github_new _readme](https://github.com/user-attachments/assets/ff77aef9-5ed7-4d66-8fb6-6861acc4bb74)
